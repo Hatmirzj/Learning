@@ -1,0 +1,2 @@
+# Learning
+Ya kwanza kusoma
